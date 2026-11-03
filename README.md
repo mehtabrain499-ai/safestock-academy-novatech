@@ -1,0 +1,1 @@
+# safestock-academy-novatech
